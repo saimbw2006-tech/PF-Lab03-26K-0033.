@@ -1,0 +1,1 @@
+My name is Muhammad Saim Adnan, and I am a Bachelor's student in Artificial Intelligence at FAST-NUCES. Driven by a passion for technology and efficiency, I love creating automation software, while also staying active through my interest in sports.
